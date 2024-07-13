@@ -1,3 +1,7 @@
+Link of my certificate
+https://www.linkedin.com/posts/barkha-jha-992b12245_im-happy-to-share-that-ive-obtained-a-new-activity-7217613513261821954-iYbz?utm_source=share&utm_medium=member_desktop
+
+
 Task-1
 To prepare for your meeting, you need to draft questions that you think will be important and relevant to the CEO and CMO. 
 This preparation will be your guide as you develop your presentation.Create a set of four questions that you anticipate each business leader will ask and want to know the answers to.
